@@ -5,4 +5,4 @@
 ⚡ Fun facts:
 - I am a word nerd at heart.
 - I love books, dogs, and hiking.
-- I have been a dental assistant for 17 years.
+- I have been a dental assistant for 18 years.
